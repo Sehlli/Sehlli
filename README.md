@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **mouadh.sehli@gmail.com**
 
-- ⚡ Fun fact **“I'm sick of following my dreams, man. I'm just going to ask where they're going and hook up with ’em later." —Mitch Hedberg**
+- ⚡ Fun fact **“I'm sick of following my dreams, man. I'm just going to ask Where they're going and hook up with ’em later." —Mitch Hedberg**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
